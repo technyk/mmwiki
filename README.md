@@ -1,0 +1,1 @@
+# Unofficial Mystic Magic wiki
